@@ -1,3 +1,1 @@
-# ziyaicoz.com
 
-Personal website
